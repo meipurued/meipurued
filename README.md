@@ -1,5 +1,5 @@
 # <p align="center">
-![](https://media.discordapp.net/attachments/1177349204071428146/1206062026586325002/BLQTJiU.gif?ex=65daa3ca&is=65c82eca&hm=4cad264b5e64c313e8f619e53b14125198bd02f906daa83e758f314264535828&=&width=818&height=818)
+![](https://files.catbox.moe/u158mm.gif)
 
 ⠀⠀⠀![](https://media.discordapp.net/attachments/1205857946978750464/1206138902113681408/EO8G39r.png?ex=65daeb63&is=65c87663&hm=5205f963e640d200bfb51efd0fcba2a7d5b87e7b4969b980098df212837233ac&=&format=webp&quality=lossless&width=148&height=84) ![](https://media.discordapp.net/attachments/1205857946978750464/1206140689864331274/hTFcNhO.png?ex=65f69c8d&is=65e4278d&hm=3609458df7badce7e56d3914d010202d47d905dd5b95f8dbff4e3688feef9d2a&=&format=webp&quality=lossless&width=148&height=84) ![](https://media.discordapp.net/attachments/1205857946978750464/1206140144881508362/ruOdSO4.png?ex=65f69c0b&is=65e4270b&hm=13d2e20995e5dfb9431dc32fbd118d24ce76a342489b693085d260f40a5b1e16&=&format=webp&quality=lossless&width=148&height=84)
 
