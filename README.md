@@ -6,4 +6,3 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/7fcooo.png) ![](https://files.catbox.moe/cfu2za.png)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=euronias&color=DA871A&label=clicks!)
-![](https://komarev.com/ghpvc/?username=insordescent&color=657854)
