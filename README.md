@@ -7,7 +7,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/7fcooo.png) ![](https://files.catbox.moe/cfu2za.png)
 
-⠀⠀⠀pfp by none other than [@TheEccentricRobot](https://github.com/TheEccentricRobot) !!
+⠀⠀⠀⠀pfp by none other than [@TheEccentricRobot](https://github.com/TheEccentricRobot) !!
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=euronias&color=DA871A&label=maplers!)
 
