@@ -9,5 +9,5 @@
 
 ⠀⠀⠀⠀pfp by none other than [@TheEccentricRobot](https://github.com/TheEccentricRobot) !!
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=euronias&color=DA871A&label=maplers!)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=euronias&color=DA871A&label=psst!)
 
