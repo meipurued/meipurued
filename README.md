@@ -14,6 +14,7 @@
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
 i'm on this game once every yttd chapter drop 
 i like all friends even the ones who are scared of me 
 hi guys
