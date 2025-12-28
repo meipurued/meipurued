@@ -11,3 +11,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=euronias&color=DA871A&label=psst!)
 
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀
+i'm on this game once every yttd chapter drop but i like all friends even the ones who are scared of me hi scareds
