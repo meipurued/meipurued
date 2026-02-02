@@ -13,8 +13,8 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀
+<br>
+<br>
+<br>⠀⠀⠀⠀⠀⠀⠀⠀
 
-i'm on this game once every yttd chapter drop but 
-i like all friends even the ones who are scared to talk to me
-hi scareds
+half my friends on this game are goneeeeeeee 
