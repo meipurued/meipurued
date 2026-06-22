@@ -17,4 +17,4 @@
 <br>
 <br>⠀⠀⠀⠀⠀⠀⠀⠀
 
-half my friends on this game are goneeeeeeee 
+one hundred thousand strings
