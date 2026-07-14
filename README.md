@@ -9,7 +9,7 @@
 
 ⠀⠀⠀⠀pfp by none other than [@darlingness](https://github.com/darlingness) !!
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=euronias&color=DA871A&label=YTTDers)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=euronias&color=DA871A&label=yttders)
 
 
 
