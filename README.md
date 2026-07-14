@@ -18,3 +18,5 @@
 <br>⠀⠀⠀⠀⠀⠀⠀⠀
 
 one hundred thousand strings
+<br>⠀links all outdated but i still respond to all recent discord dms
+<br> yes i still like you⠀
