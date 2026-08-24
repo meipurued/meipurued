@@ -7,16 +7,11 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/7fcooo.png) ![](https://files.catbox.moe/cfu2za.png)
 
-⠀⠀⠀⠀pfp by none other than [@darlingness](https://github.com/darlingness) !!
-
+⠀⠀⠀⠀i am meipurued i love friends and yttd
+<br>
+<br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=euronias&color=DA871A&label=yttders)
 
 
 
-<br>
-<br>
-<br>⠀⠀⠀⠀⠀⠀⠀⠀
 
-one hundred thousand strings
-<br>⠀links all outdated but i still respond to all recent discord dms
-<br>⠀⠀no i dont dislike you
