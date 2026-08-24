@@ -7,7 +7,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/7fcooo.png) ![](https://files.catbox.moe/cfu2za.png)
 
-⠀⠀⠀⠀⠀i am meipurued i love friends and yttd
+⠀⠀⠀⠀⠀⠀⠀i am meipurued i love friends and yttd
 <br>
 <br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=euronias&color=DA871A&label=yttders)
