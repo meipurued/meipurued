@@ -13,17 +13,4 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=euronias&color=DA871A&label=yttders)
 
 
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
 
-![](https://file.garden/aoBrDzJZYxDjRhcv/light.png)
